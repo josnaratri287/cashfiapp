@@ -10,8 +10,9 @@ Halloween is the biggest holiday in the West, including the United States, after
   `CLICK HERE FREE CASH APP $750 NOW.
   <https://www.prekindle.com/event/65956-how-to-get-free-cash-app-money-generator-november-2021>`_
   
-    `CLICK HERE FREE CASH APP $750 NOW.
+   `CLICK HERE FREE CASH APP $750 NOW.
   <https://www.prekindle.com/event/31451-free-cash-app-money-generator-version-41>`_
+  
 
   `CLICK HERE FREE CASH APP $750 NOW.
   <https://www.prekindle.com/event/27467-risk-free-cash-app-hack-get-750-free-cash-app-money-generator>`_
